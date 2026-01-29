@@ -1,0 +1,2 @@
+# Tera-RGB2.0.exe
+MY NEW MALWARE 2.0 VERSION OF THE POWERFUL MALWARE! Btw Remaked by ultradasher965.
